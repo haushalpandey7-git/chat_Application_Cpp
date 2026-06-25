@@ -1,2 +1,2 @@
-Haushal Pandey
-Rosan Bidari
+- Haushal Pandey
+- Rosan Bidari
